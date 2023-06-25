@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Peer Support Effectiveness: Establishing Key Performance Indicators (KPIs)
-==============================================================================================================
+# Establishing Key Performance Indicators (KPIs)
 
 Measuring and evaluating the effectiveness of peer support programs is critical for ensuring that they are meeting organizational goals and objectives. In this chapter, we will explore techniques for measuring and evaluating peer support effectiveness by establishing key performance indicators (KPIs).
 

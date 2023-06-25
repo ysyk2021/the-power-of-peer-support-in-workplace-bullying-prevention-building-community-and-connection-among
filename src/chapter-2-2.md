@@ -1,5 +1,4 @@
-Chapter 2: Overview of Workplace Bullying: The Impact of Workplace Bullying on Employee Health and Performance
-==============================================================================================================
+# The Impact of Workplace Bullying on Employee Health and Performance
 
 Workplace bullying is a serious issue that can have significant negative impacts on employees and the work environment. In this chapter, we will explore the impact of workplace bullying on employee health and performance.
 

@@ -1,5 +1,4 @@
-Chapter 6: Creating a Culture of Respect and Inclusion: Building a Positive and Supportive Workplace Culture
-============================================================================================================
+# Building a Positive and Supportive Workplace Culture
 
 Creating a culture of respect and inclusion is essential for preventing workplace bullying and promoting a positive and supportive workplace environment. In this chapter, we will explore techniques for building a positive and supportive workplace culture.
 

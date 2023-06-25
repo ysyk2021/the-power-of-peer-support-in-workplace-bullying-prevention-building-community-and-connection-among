@@ -1,5 +1,4 @@
-Chapter 3: Understanding Peer Support: Identifying Key Elements of Effective Peer Support
-=========================================================================================
+# Identifying Key Elements of Effective Peer Support
 
 Peer support can be a powerful tool for preventing workplace bullying and building community and connection among employees. In this chapter, we will identify key elements of effective peer support.
 

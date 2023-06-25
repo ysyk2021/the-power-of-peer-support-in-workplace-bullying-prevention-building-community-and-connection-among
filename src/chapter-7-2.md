@@ -1,5 +1,4 @@
-Chapter 7: Providing Training and Resources for Peer Supporters: Developing Peer Supporter Skills and Knowledge
-===============================================================================================================
+# Developing Peer Supporter Skills and Knowledge
 
 Providing training and resources for peer supporters is essential to ensure that they are equipped with the necessary skills and knowledge to effectively support their colleagues in preventing workplace bullying. In this chapter, we will explore techniques for developing peer supporter skills and knowledge.
 

@@ -1,5 +1,4 @@
-Chapter 4: Building Community and Connection through Peer Support: Encouraging Open Communication and Dialogue
-==============================================================================================================
+# Encouraging Open Communication and Dialogue
 
 One of the key ways that peer support can prevent workplace bullying is by fostering a sense of community and connection among employees. In this chapter, we will explore how open communication and dialogue can help build community and connection through peer support.
 

@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Recap of Key Points and Strategies
-==========================================================
+# Recap of Key Points and Strategies
 
 Peer support can be a powerful tool for preventing workplace bullying and building community and connection among employees. In this book, we have explored the importance of peer support in workplace bullying prevention and identified key strategies for effective implementation.
 

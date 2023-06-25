@@ -1,5 +1,4 @@
-Chapter 3: Understanding Peer Support: Exploring the Relationship between Peer Support and Workplace Bullying Prevention
-========================================================================================================================
+# Exploring the Relationship between Peer Support and Workplace Bullying Prevention
 
 Peer support can be a powerful tool for preventing workplace bullying. In this chapter, we will explore the relationship between peer support and workplace bullying prevention.
 

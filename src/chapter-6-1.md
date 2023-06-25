@@ -1,5 +1,4 @@
-Chapter 6: Creating a Culture of Respect and Inclusion: Techniques for Creating a Culture of Respect and Inclusion
-==================================================================================================================
+# Techniques for Creating a Culture of Respect and Inclusion
 
 Creating a culture of respect and inclusion in the workplace is essential for preventing workplace bullying and promoting positive interactions among colleagues. In this chapter, we will explore techniques for creating such a culture.
 

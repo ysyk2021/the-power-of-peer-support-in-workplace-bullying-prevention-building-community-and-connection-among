@@ -1,5 +1,4 @@
-Chapter 7: Providing Training and Resources for Peer Supporters: Techniques for Providing Training and Resources for Peer Supporters
-====================================================================================================================================
+# Techniques for Providing Training and Resources for Peer Supporters
 
 Providing training and resources for peer supporters is essential for ensuring the effectiveness of peer support programs in preventing workplace bullying. In this chapter, we will explore techniques for providing such training and resources.
 

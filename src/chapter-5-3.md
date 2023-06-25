@@ -1,5 +1,4 @@
-Chapter 5: Addressing Workplace Bullying through Peer Support: Engaging Bullies in Constructive Dialogue
-========================================================================================================
+# Engaging Bullies in Constructive Dialogue
 
 Addressing workplace bullying requires a multi-faceted approach that involves both preventing and addressing bullying behaviors. While peer support programs can be effective in supporting victims of workplace bullying, they can also be used to engage bullies in constructive dialogue and address the root causes of their behavior.
 

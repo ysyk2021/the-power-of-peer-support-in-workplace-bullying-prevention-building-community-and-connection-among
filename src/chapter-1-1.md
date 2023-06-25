@@ -1,5 +1,4 @@
-Chapter 1: Introduction: Defining the Importance of Peer Support in Workplace Bullying Prevention
-=================================================================================================
+# Defining the Importance of Peer Support in Workplace Bullying Prevention
 
 Workplace bullying is a pervasive issue that can have serious consequences for the mental and physical health of employees. According to the Workplace Bullying Institute, 19% of workers report being bullied at work, and an additional 19% report being aware of someone else being bullied. The effects of workplace bullying can be devastating, leading to anxiety, depression, and even suicide.
 

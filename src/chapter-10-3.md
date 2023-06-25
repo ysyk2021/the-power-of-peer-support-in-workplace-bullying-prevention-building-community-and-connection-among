@@ -1,5 +1,4 @@
-Chapter 10: Conclusion: Future Directions for Research and Practice
-===================================================================
+# Future Directions for Research and Practice
 
 In this book, we have explored the power of peer support in workplace bullying prevention and building community and connection among employees. To conclude, we will discuss future directions for research and practice in this area.
 

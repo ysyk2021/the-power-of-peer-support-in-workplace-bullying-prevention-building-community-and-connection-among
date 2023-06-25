@@ -1,5 +1,4 @@
-Chapter 7: Providing Training and Resources for Peer Supporters: Providing Access to Relevant Resources
-=======================================================================================================
+# Providing Access to Relevant Resources
 
 Peer support can be a powerful tool for preventing workplace bullying, but it is important for peer supporters to have the necessary training and resources to effectively support their colleagues. In this chapter, we will explore the importance of providing training and resources for peer supporters and identify relevant resources that can be made available.
 

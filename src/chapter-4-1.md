@@ -1,5 +1,4 @@
-Chapter 4: Building Community and Connection through Peer Support: Techniques for Building Community and Connection through Peer Support
-========================================================================================================================================
+# Techniques for Building Community and Connection through Peer Support
 
 Peer support can be a powerful tool for building community and connection among employees and preventing workplace bullying. In this chapter, we will explore techniques for building community and connection through peer support.
 

@@ -1,5 +1,4 @@
-Chapter 8: Measuring and Evaluating Peer Support Effectiveness: Analyzing Results and Making Improvements
-=========================================================================================================
+# Analyzing Results and Making Improvements
 
 Measuring and evaluating the effectiveness of peer support programs is critical for ensuring that they are meeting organizational goals and objectives. In this chapter, we will explore techniques for measuring and evaluating peer support effectiveness.
 

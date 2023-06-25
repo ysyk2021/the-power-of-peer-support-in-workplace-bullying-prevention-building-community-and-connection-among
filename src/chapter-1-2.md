@@ -1,5 +1,4 @@
-Chapter 1: Introduction: The Benefits and Challenges of Effective Peer Support
-==============================================================================
+# The Benefits and Challenges of Effective Peer Support
 
 Workplace bullying is a widespread problem that affects employees' well-being, job satisfaction, and productivity. Traditional approaches to preventing and addressing workplace bullying typically rely on top-down policies and procedures, which can be ineffective in creating lasting change.
 

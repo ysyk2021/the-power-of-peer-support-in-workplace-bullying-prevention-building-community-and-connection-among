@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Peer Support Efforts: Continuous Learning and Improvement
-===============================================================================
+# Continuous Learning and Improvement
 
 Sustaining peer support efforts is critical for ensuring long-term success in workplace bullying prevention. As such, continuous learning and improvement are essential components of any effective peer support program.
 

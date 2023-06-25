@@ -1,5 +1,4 @@
-Chapter 3: Understanding Peer Support: Techniques for Understanding Peer Support
-================================================================================
+# Techniques for Understanding Peer Support
 
 Peer support is an important tool for preventing workplace bullying and creating a positive work environment. In this chapter, we will explore techniques for understanding peer support.
 

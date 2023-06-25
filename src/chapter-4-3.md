@@ -1,5 +1,4 @@
-Chapter 4: Building Community and Connection through Peer Support: Developing Trust and Empathy
-===============================================================================================
+# Developing Trust and Empathy
 
 Peer support can be a powerful tool for preventing workplace bullying and building community and connection among employees. In this chapter, we will explore the importance of developing trust and empathy in peer support.
 

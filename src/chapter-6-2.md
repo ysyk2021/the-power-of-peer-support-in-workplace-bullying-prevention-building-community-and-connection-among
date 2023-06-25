@@ -1,5 +1,4 @@
-Chapter 6: Creating a Culture of Respect and Inclusion: Fostering Diversity and Inclusivity
-===========================================================================================
+# Fostering Diversity and Inclusivity
 
 Fostering diversity and inclusivity is an essential component of creating a culture of respect and inclusion in the workplace. Employers who value and respect differences among employees are better equipped to prevent workplace bullying and promote positive interactions and connections among colleagues.
 

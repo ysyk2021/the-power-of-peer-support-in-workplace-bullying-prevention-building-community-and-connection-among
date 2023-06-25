@@ -1,5 +1,4 @@
-Chapter 2: Overview of Workplace Bullying: Different Perspectives and Approaches to Workplace Bullying
-======================================================================================================
+# Different Perspectives and Approaches to Workplace Bullying
 
 Workplace bullying is a serious issue that can have significant negative impacts on employees and the work environment. In this chapter, we will explore different perspectives and approaches to workplace bullying.
 

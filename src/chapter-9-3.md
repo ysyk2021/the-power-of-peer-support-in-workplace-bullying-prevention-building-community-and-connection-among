@@ -1,5 +1,4 @@
-Chapter 9: Sustaining Peer Support Efforts: Adapting to Changes in the Workplace Environment
-============================================================================================
+# Adapting to Changes in the Workplace Environment
 
 Sustaining peer support efforts requires ongoing adaptation and adjustment to changes in the workplace environment. As such, employers must be prepared to continuously assess and evaluate the effectiveness of their peer support programs and make changes as necessary to ensure their sustainability and relevance.
 
