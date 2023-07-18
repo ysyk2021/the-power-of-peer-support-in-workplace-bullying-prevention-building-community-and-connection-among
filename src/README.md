@@ -8,5 +8,4 @@ With real-world examples, practical tips, and step-by-step guidance, readers wil
 
 So if you're ready to transform your workplace culture and prevent bullying behavior, don't miss out on this essential resource. Get ready to build stronger connections and foster a more positive workplace environment today.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
