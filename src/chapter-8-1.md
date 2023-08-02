@@ -1,4 +1,4 @@
-Chapter 13: Techniques for Measuring and Evaluating Peer Support Effectiveness
+Techniques for Measuring and Evaluating Peer Support Effectiveness
 ==============================================================================
 
 Measuring and evaluating the effectiveness of peer support is crucial for assessing the impact of a workplace bullying prevention program. This chapter explores various techniques and methods that organizations can employ to measure and evaluate the effectiveness of peer support initiatives.

@@ -1,4 +1,4 @@
-Chapter 6: Techniques for Understanding Peer Support
+Techniques for Understanding Peer Support
 ====================================================
 
 In order to fully comprehend the power of peer support in workplace bullying prevention, it is important to explore various techniques that can help individuals and organizations understand and harness this valuable resource. This chapter will delve into different strategies and approaches for understanding peer support and its impact on building community and connection among employees.

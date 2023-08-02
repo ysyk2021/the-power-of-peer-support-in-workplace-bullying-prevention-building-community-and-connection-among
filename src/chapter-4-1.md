@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Building Community and Connection through Peer Support
+Techniques for Building Community and Connection through Peer Support
 ================================================================================
 
 In this chapter, we will explore various techniques for building a strong sense of community and fostering connection among employees through the power of peer support. By implementing these strategies, organizations can effectively prevent workplace bullying and create a supportive and inclusive work environment.

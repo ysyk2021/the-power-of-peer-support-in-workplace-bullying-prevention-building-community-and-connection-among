@@ -1,4 +1,4 @@
-Chapter 11: Establishing Key Performance Indicators (KPIs)
+Establishing Key Performance Indicators (KPIs)
 ==========================================================
 
 Key Performance Indicators (KPIs) are essential for evaluating the effectiveness and impact of a peer support program in workplace bullying prevention. This chapter explores the importance of establishing KPIs and provides guidance on defining and measuring success.

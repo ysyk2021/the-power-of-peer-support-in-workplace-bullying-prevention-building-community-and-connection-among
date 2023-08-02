@@ -1,4 +1,4 @@
-Chapter 3: Exploring the Relationship between Peer Support and Workplace Bullying Prevention
+Exploring the Relationship between Peer Support and Workplace Bullying Prevention
 ============================================================================================
 
 In this chapter, we will delve into the intricacies of the relationship between peer support and workplace bullying prevention. We will examine how peer support initiatives can effectively contribute to creating a safe and supportive work environment, fostering community and connection among employees.

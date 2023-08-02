@@ -1,4 +1,4 @@
-Chapter 12: Analyzing Results and Making Improvements
+Analyzing Results and Making Improvements
 =====================================================
 
 Effective analysis of results and continuous improvement are crucial components of a peer support program in workplace bullying prevention. This chapter explores the importance of analyzing program results, identifying areas for improvement, and implementing necessary changes.

@@ -1,4 +1,4 @@
-Chapter 9: Building a Positive and Supportive Workplace Culture
+Building a Positive and Supportive Workplace Culture
 ===============================================================
 
 In this chapter, we will explore the importance of building a positive and supportive workplace culture in preventing workplace bullying and promoting community and connection among employees. A culture of respect, inclusivity, and support is essential for creating a safe and thriving work environment.

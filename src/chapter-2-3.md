@@ -1,4 +1,4 @@
-Chapter 10: Techniques for Overcoming Common Challenges in Workplace Bullying Prevention
+Techniques for Overcoming Common Challenges in Workplace Bullying Prevention
 ========================================================================================
 
 In this chapter, we will explore various techniques for overcoming common challenges encountered in the prevention of workplace bullying. While addressing and preventing workplace bullying can be complex, implementing effective strategies can help build a supportive community and foster connection among employees.

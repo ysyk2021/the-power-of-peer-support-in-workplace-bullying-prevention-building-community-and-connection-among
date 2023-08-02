@@ -1,4 +1,4 @@
-Chapter 12: Different Perspectives and Approaches to Workplace Bullying
+Different Perspectives and Approaches to Workplace Bullying
 =======================================================================
 
 In this chapter, we will explore the importance of understanding different perspectives and approaches to workplace bullying prevention. Recognizing diverse viewpoints and strategies can help build a comprehensive and inclusive framework for addressing workplace bullying and fostering community and connection among employees.

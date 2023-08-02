@@ -1,4 +1,4 @@
-Chapter 8: Techniques for Addressing Workplace Bullying through Peer Support
+Techniques for Addressing Workplace Bullying through Peer Support
 ============================================================================
 
 In this chapter, we will explore various techniques that leverage the power of peer support to address workplace bullying effectively. Creating a community of support among employees can empower individuals to intervene, provide assistance, and foster a culture of respect and empathy in the workplace.

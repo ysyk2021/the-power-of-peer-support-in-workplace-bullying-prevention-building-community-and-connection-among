@@ -1,4 +1,4 @@
-Chapter 9: Continuous Learning and Improvement
+Continuous Learning and Improvement
 ==============================================
 
 Continuous learning and improvement are essential components of building an effective peer support program for workplace bullying prevention. This chapter explores the importance of ongoing learning and improvement in creating a supportive and inclusive work environment.
