@@ -29,4 +29,3 @@ Conclusion
 
 In conclusion, peer support is an important tool for preventing workplace bullying and creating a positive work environment. By establishing peer support programs, offering training and resources, encouraging open communication and dialogue, and fostering a culture of respect and support, organizations can promote a safer and healthier workplace for all employees.
 
-
