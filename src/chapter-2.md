@@ -1,5 +1,3 @@
-Chapter 2: Overview of Workplace Bullying
-=========================================
 
 Workplace bullying is a serious issue that can have significant negative impacts on employees and the work environment. In this chapter, we will provide an overview of workplace bullying, including different perspectives and approaches, the impact on employee health and performance, and techniques for overcoming common challenges in workplace bullying prevention.
 

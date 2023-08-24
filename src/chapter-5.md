@@ -1,5 +1,3 @@
-Chapter 5: Addressing Workplace Bullying through Peer Support
-=============================================================
 
 Peer support can be an effective tool for addressing workplace bullying. In this chapter, we will explore techniques for addressing workplace bullying through peer support, including supporting victims of bullying and engaging bullies in constructive dialogue.
 

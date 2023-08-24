@@ -1,5 +1,3 @@
-Why Understanding the Role of Building Community and Connection is Critical for Workplace Bullying Prevention
-========================================================================================================================
 
 In the fight against workplace bullying, understanding the role of building community and connection among employees is essential. This chapter explores the importance of fostering a sense of community and connection in preventing workplace bullying and creating a supportive and inclusive work environment.
 

@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Peer Support Effectiveness
-==============================================================
 
 In this chapter, we will explore techniques for measuring and evaluating the effectiveness of peer support in workplace bullying prevention. By establishing key performance indicators (KPIs) and analyzing results, organizations can make data-driven decisions to improve their peer support programs.
 

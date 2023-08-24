@@ -1,4 +1,3 @@
-# Supporting Victims of Workplace Bullying
 
 In this chapter, we will explore the importance of supporting victims of workplace bullying and the ways in which peer support can play a significant role in providing assistance, validation, and healing. Workplace bullying can have devastating effects on its victims, and it is crucial to offer them the support they need to navigate through these challenging experiences.
 

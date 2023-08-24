@@ -1,5 +1,3 @@
-Engaging Bullies in Constructive Dialogue
-====================================================
 
 In this chapter, we will explore the importance of engaging bullies in constructive dialogue as part of the workplace bullying prevention efforts. While addressing the behavior of bullies can be challenging, open and respectful communication can provide an opportunity for change and growth.
 

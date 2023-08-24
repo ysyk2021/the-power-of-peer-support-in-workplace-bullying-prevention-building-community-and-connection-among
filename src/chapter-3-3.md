@@ -1,4 +1,3 @@
-# Exploring the Relationship between Peer Support and Workplace Bullying Prevention
 
 In this chapter, we will delve into the relationship between peer support and workplace bullying prevention. Workplace bullying is a significant issue that can have detrimental effects on individuals and organizations. By examining the role of peer support in addressing and preventing workplace bullying, we can gain insights into the importance of building community and connection among employees.
 

@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace Environment
-============================================================
 
 In today's rapidly changing work landscape, organizations must adapt to various shifts and challenges. This chapter explores the importance of adapting to changes in the workplace environment for an effective peer support program in workplace bullying prevention.
 

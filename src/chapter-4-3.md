@@ -1,5 +1,3 @@
-Developing Trust and Empathy
-========================================
 
 In this chapter, we will explore the importance of developing trust and empathy in preventing workplace bullying and building community and connection among employees. Trust and empathy are essential elements for fostering a supportive and inclusive work environment.
 

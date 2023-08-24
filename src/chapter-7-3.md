@@ -1,5 +1,3 @@
-Providing Access to Relevant Resources
-=================================================
 
 In this chapter, we will explore the significance of providing access to relevant resources as part of workplace bullying prevention efforts. Equipping employees with appropriate resources can empower them to address and prevent bullying effectively. By offering a range of tools, information, and support systems, organizations can foster a culture of peer support and resilience.
 

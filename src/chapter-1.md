@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 Defining the Importance of Peer Support in Workplace Bullying Prevention
 ------------------------------------------------------------------------

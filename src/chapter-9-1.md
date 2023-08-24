@@ -1,5 +1,3 @@
-Techniques for Sustaining Peer Support Efforts
-=========================================================
 
 Sustaining peer support efforts is crucial for maintaining a strong and effective workplace bullying prevention program. This chapter explores various techniques and strategies that organizations can employ to ensure the longevity and success of their peer support initiatives.
 

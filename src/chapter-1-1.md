@@ -1,5 +1,3 @@
-Defining the Importance of Peer Support in Workplace Bullying Prevention
-===================================================================================
 
 In this chapter, we will delve into the significance of peer support in workplace bullying prevention. We will explore how peer support can create a positive impact, foster a supportive environment, and contribute to the overall well-being of individuals within the organization.
 

@@ -1,5 +1,3 @@
-Encouraging Open Communication and Dialogue
-=======================================================
 
 In this chapter, we will delve into the significance of encouraging open communication and dialogue in preventing workplace bullying and building community and connection among employees. Establishing a culture of open communication and dialogue promotes transparency, understanding, and effective problem-solving.
 

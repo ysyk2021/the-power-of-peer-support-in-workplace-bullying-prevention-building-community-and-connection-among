@@ -1,4 +1,3 @@
-# Developing Peer Supporter Skills and Knowledge
 
 In this chapter, we will explore the importance of developing the skills and knowledge of peer supporters in the context of workplace bullying prevention. Peer supporters play a crucial role in fostering a supportive environment and providing assistance to colleagues who experience bullying. By equipping them with the necessary skills and knowledge, organizations can empower peer supporters to effectively address bullying incidents, provide emotional support, and build a strong sense of community among employees.
 

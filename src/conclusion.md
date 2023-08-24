@@ -1,4 +1,3 @@
-# Conclusion
 
 In this book, we have explored the power of peer support in workplace bullying prevention. We have discussed the importance of building community and connection among employees, and how peer support programs can be an effective strategy for preventing workplace bullying and promoting positive interactions and relationships among colleagues.
 

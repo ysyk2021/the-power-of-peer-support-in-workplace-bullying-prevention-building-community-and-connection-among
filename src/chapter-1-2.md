@@ -1,5 +1,3 @@
-The Benefits and Challenges of Effective Peer Support
-================================================================
 
 Effective peer support initiatives in workplace bullying prevention offer numerous benefits to both individuals and organizations. However, they also come with their own set of challenges. In this chapter, we will explore the benefits and challenges of implementing effective peer support programs.
 

@@ -1,5 +1,3 @@
-Chapter 9: Sustaining Peer Support Efforts
-==========================================
 
 Sustaining peer support efforts is critical for ensuring their effectiveness in preventing workplace bullying and promoting positive interactions among colleagues. In this chapter, we will explore techniques for sustaining peer support efforts.
 

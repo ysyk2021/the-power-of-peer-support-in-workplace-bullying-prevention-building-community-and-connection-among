@@ -1,5 +1,3 @@
-Identifying Key Elements of Effective Peer Support
-=============================================================
 
 Effective peer support initiatives are built on a foundation of trust, empathy, and shared experiences. In this chapter, we will explore the key elements that contribute to the success of peer support programs in preventing workplace bullying. Understanding these elements can guide organizations in developing and implementing effective peer support strategies.
 

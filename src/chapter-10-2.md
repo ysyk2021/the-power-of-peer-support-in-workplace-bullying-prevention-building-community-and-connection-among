@@ -1,4 +1,3 @@
-# Final Recommendations for Building Community and Connection through Peer Support
 
 In this book, we have explored the power of peer support in workplace bullying prevention and building community and connection among employees. To summarize our findings, we offer the following final recommendations for building community and connection through peer support.
 

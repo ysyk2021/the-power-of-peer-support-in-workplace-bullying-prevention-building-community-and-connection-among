@@ -1,4 +1,3 @@
-# Techniques for Providing Training and Resources for Peer Supporters
 
 In this chapter, we will explore various techniques for providing training and resources to empower peer supporters in preventing workplace bullying. Peer support plays a vital role in creating a supportive and inclusive work environment, and equipping these individuals with the necessary skills and knowledge is essential. By implementing effective training programs and providing valuable resources, organizations can enhance the effectiveness of peer support initiatives and effectively address workplace bullying.
 

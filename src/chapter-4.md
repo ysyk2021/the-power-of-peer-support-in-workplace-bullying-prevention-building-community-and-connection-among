@@ -1,5 +1,3 @@
-Chapter 4: Building Community and Connection through Peer Support
-=================================================================
 
 Building community and connection through peer support is essential for preventing workplace bullying and creating a positive work environment. In this chapter, we will explore techniques for building community and connection through peer support, including encouraging open communication and dialogue, developing trust and empathy, and providing team-building activities.
 
