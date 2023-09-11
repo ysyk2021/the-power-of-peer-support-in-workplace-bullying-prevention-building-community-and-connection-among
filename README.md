@@ -1,3 +1,6 @@
+# The Power of Peer Support in Workplace Bullying Prevention: Building Community and Connection among Employees
+
+Book Link: [https://zhengpublishing.com/the-power-of-peer-support-in-workplace-bullying-prevention-building-community-and-connection-among-employees/](https://zhengpublishing.com/the-power-of-peer-support-in-workplace-bullying-prevention-building-community-and-connection-among-employees/)
 
 "The Power of Peer Support in Workplace Bullying Prevention: Building Community and Connection among Employees" is a powerful guide to creating a positive workplace culture that fosters respect, kindness, and support among peers. In today's fast-paced work environments, it's essential to build strong connections between coworkers to prevent bullying behavior and promote employee well-being.
 
